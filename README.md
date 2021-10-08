@@ -7,7 +7,8 @@ eget rum
 27 nov  
 [länk](https://www.stenungsbaden.se)  
 Verkar rätt ok, dock kanske någon cheesy underhållning. Lite synd med bara 2h spa och att man får en utpekad tid. Verkar som det är lite dyrare när julborden drar igång. Har aldrig ätit på resturangen där så jag vet inte riktigt vad det kan vara för kvalitet på mat (något säger mig att det är ok/bra men inte super)  
-Det finns faktiskt sviter med 3 sovrum. Det hade ju kunnat funka men då ser man ju gärna att sängen som är i huvudrummet (den stora sängen) är så man kan dela på den. Lite kul med en svit, har potential att bli som *the hangover*. (man kan köpa till sen utchecknign (1300) för 300kr/rum).
+Det finns faktiskt sviter med 3 sovrum. Det hade ju kunnat funka men då ser man ju gärna att sängen som är i huvudrummet (den stora sängen) är så man kan dela på den. Lite kul med en svit, har potential att bli som *the hangover*. Dessutom blir det billigare, på 2380pp istället. (man kan köpa till sen utchecknign (1300) för 300kr/rum).
+Det finns också möjlighet att istället boka SPA på avresedagen (9-11 eller 11-13). Då blir det lite billigare, vet inte vad man skall göra på incheckningsdagen då, men det kan ju vara lite skönt att rellaxa bort baksmällan i en pool :) .
 
 ## Vann
 julmiddag + spa  
