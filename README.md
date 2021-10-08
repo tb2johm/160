@@ -1,10 +1,10 @@
 # 160
 
 ## Baden
-julbord + spa
-eget rum
-2841
-27 nov
+julbord + spa 
+eget rum 
+2841 
+27 nov 
 
 ## Vann
 julmiddag + spa
