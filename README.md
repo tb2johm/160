@@ -1,4 +1,6 @@
 # 160
+Har sammanställt ett par olika hotell. Allt är väldigt fokuserat här omkring. Om någon har några andra förslag så vore det kul. Vem vet, något i Jönköping kanske (så det blir lite närmre för alla).
+Jag har inte lagt dem i någon speciell ordning, men jag tycker baden, vann eller björholmen verkar bäst.
 
 ## Baden
 julbord + spa  
